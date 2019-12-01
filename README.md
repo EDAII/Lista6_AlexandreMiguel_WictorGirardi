@@ -1,0 +1,2 @@
+# Lista6_AlexandreMiguel_WictorGirardi
+Lista6_AlexandreMiguel_WictorGirardi
